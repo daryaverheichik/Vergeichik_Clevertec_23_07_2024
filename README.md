@@ -1,0 +1,1 @@
+# Vergeichik_Clevertec_23_07_2024
